@@ -1,1 +1,0 @@
-# MDM-practical-10
